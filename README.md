@@ -1,0 +1,2 @@
+# JEPA-
+JEPA OPEN MODEL
